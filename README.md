@@ -5,6 +5,8 @@ good lecture
 data *science* lab
 😂 
 
+🏄
+
 https://www.donga.ac.kr
 
 ![동아대학교 로고](https://images.app.goo.gl/RwDuKoAANZxvmbCk8)
